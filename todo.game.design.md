@@ -1,0 +1,4 @@
+- List out as many emotions and memory types as possible
+- Find out which of these emotions and memory types can be represented/implemented as an environmental mechanic/catastrophe
+- Find out which of these emotions and memory types can be represented/implemented as a character/NPC mechanic
+- Find out which of these emotions and memory types can be represented/implemented as a world mechanic
