@@ -72,3 +72,5 @@ The expected rollover from month to month is (N10K + N3.2K) = N13.2K best case s
 10. **Travel and Exploration**
   - Plan and take at least one trip to a new destination every year.
   - Explore local attractions or events monthly.
+
+  STAY AWAY FROM WOMEN, SOCIAL MEDIA, ALCOHOL AND PROCRASTINATION! THEY ARE DISTRACTIONS!
